@@ -1,0 +1,2 @@
+# Amer
+Lahat pwede
